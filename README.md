@@ -1,0 +1,1 @@
+# logo-vise-png-public
